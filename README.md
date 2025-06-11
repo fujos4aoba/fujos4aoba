@@ -1,5 +1,5 @@
 <p align="center">
-╭ ┈•┈୨୧┈•┈ ╮ <img width="200" src="https://img1.picmix.com/output/stamp/normal/0/4/8/7/2577840_36057.gif"> ╭ ┈•┈୨୧┈•┈ ╮
+<img width="200" src="https://external-media.spacehey.net/media/sBCQkPNX-O4TYsjMrpYW_RQo_CufJ_Lp9kc2z1NoUzgU=/https://i.ibb.co/S72DC5d/ezgif-3-2967bb8416.gif"> <img width="200" src="https://img1.picmix.com/output/stamp/normal/0/4/8/7/2577840_36057.gif"> <img width="200" src="http://dl.glitter-graphics.net/pub/281/281111qnywm02nk3.gif">
 </p>
 
 <p align="center">
@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-hiiiii ^^, 6teen, blk, any/all
+^_^, 6teen, blk, any/all
 </p>
 
 <p align="center">
