@@ -1,5 +1,5 @@
 <p align="center">
-╭ ┈•┈୨୧┈•┈ ╮ ╭ ┈•┈୨୧┈•┈ ╮ ╭ ┈•┈୨୧┈•┈ ╮
+╭ ┈•┈୨୧┈•┈ ╮ <img width="200" src="https://img1.picmix.com/output/stamp/normal/0/4/8/7/2577840_36057.gif"> ╭ ┈•┈୨୧┈•┈ ╮
 </p>
 
 <p align="center">
