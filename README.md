@@ -3,11 +3,11 @@
 </p>
 
 <p align="center">
-    <img width="200" src="https://i.pinimg.com/736x/bc/9e/af/bc9eaf4701fa5596dc4d04e96ab5191a.jpg"> <img width="200" src="https://i.gifer.com/origin/dd/ddb2de16735c7bbf6ad3a6ad748d12e7_w200.gif">
+    <img width="350" src="https://media1.tenor.com/m/Yp57_hUb1koAAAAd/leon-kennedy-leon.gif"> <img width="200" src="https://i.gifer.com/origin/dd/ddb2de16735c7bbf6ad3a6ad748d12e7_w200.gif">
 </p>
 
 <p align="center">
-^_^, 6teen, blk, any/all
+heyyy
 </p>
 
 <p align="center">
