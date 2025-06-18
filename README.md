@@ -26,6 +26,12 @@
 </p>
 
 <p align="center">
+<img width="200" src="https://64.media.tumblr.com/ab745d978c26615fac2f1903c12f9de2/bea80a03eca020e8-33/s250x400/747f0753175505a55c14c32087a5a33759ab13a8.gifv"> 
+    <img width="200" src="https://64.media.tumblr.com/49250827bf9c49c02dd5200a15fb5853/b9cad5a3b0a11ffa-50/s500x750/b59790913fbf04b60e976df1ec9246e677ff8cf0.gifv"> 
+    <img width="200" src="https://adriansblinkiecollection.neocities.org/q22.gif">
+</p>
+
+<p align="center">
 <img width="200" src="https://external-media.spacehey.net/media/sktScMJ4sOOljeSHCUlq0q_TnuSiQyuQqo2YRT_tE5Rg=/https://64.media.tumblr.com/03ece53af9203135a01d21e3dadc61d4/9aae553337836373-5b/s400x600/284abd628a4b344363bf31e9c25e51b36d3bb88a.gifv"> <img width="200" src="https://64.media.tumblr.com/6d12a2374206fe6e8fde0798e3e32894/0b1ab1662ed45859-35/s250x400/fa1336eb32c68fcd6956f3fac56bdca20b00d197.gifv"> <img width="200" src="https://64.media.tumblr.com/d0e84b6c1a9cf805dc7e4fa6bb6d91fb/0b1ab1662ed45859-fd/s250x400/2e6d568e0447d76565506da5341eb43281d56f5d.gifv"> 
 </p>
 
@@ -49,10 +55,4 @@
 <img width="200" src="https://adriansblinkiecollection.neocities.org/z48.gif"> 
     <img width="200" src="https://adriansblinkiecollection.neocities.org/g95.gif"> 
     <img width="200" src="https://adriansblinkiecollection.neocities.org/c39.gif">
-</p>
-
-<p align="center">
-<img width="200" src="https://64.media.tumblr.com/ab745d978c26615fac2f1903c12f9de2/bea80a03eca020e8-33/s250x400/747f0753175505a55c14c32087a5a33759ab13a8.gifv"> 
-    <img width="200" src="https://64.media.tumblr.com/49250827bf9c49c02dd5200a15fb5853/b9cad5a3b0a11ffa-50/s500x750/b59790913fbf04b60e976df1ec9246e677ff8cf0.gifv"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/q22.gif">
 </p>
