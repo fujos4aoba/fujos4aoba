@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    <img width="350" src="https://media1.tenor.com/m/Yp57_hUb1koAAAAd/leon-kennedy-leon.gif"> <img width="200" src="https://i.gifer.com/origin/dd/ddb2de16735c7bbf6ad3a6ad748d12e7_w200.gif">
+    <img width="350" src="https://media1.tenor.com/m/TralSB5TwIYAAAAd/sigzai-sigma-bsd.gif"> <img width="200" src="https://i.gifer.com/origin/dd/ddb2de16735c7bbf6ad3a6ad748d12e7_w200.gif">
 </p>
 
 <p align="center">
