@@ -56,3 +56,7 @@
     <img width="200" src="https://adriansblinkiecollection.neocities.org/g95.gif"> 
     <img width="200" src="https://adriansblinkiecollection.neocities.org/c39.gif">
 </p>
+
+<p align="center">
+<img width="600" src="https://64.media.tumblr.com/16112535c6031e7cc20a341d7922f166/4789d800edd72b9c-40/s540x810/0c2d986f1e839ac13a77b599b2abc3cc84ba1612.gifv"> 
+</p>
