@@ -39,10 +39,20 @@
     <img width="200" src="https://adriansblinkiecollection.neocities.org/g77.gif">
 </p>
 
-
+<p align="center">
+<img width="200" src="https://adriansblinkiecollection.neocities.org/x37.gif"> 
+    <img width="200" src="https://adriansblinkiecollection.neocities.org/y42.gif"> 
+    <img width="200" src="https://64.media.tumblr.com/d6f56795f126aa0576cf28c9b78021e4/648b5dc83e2eccd8-8c/s250x400/ec1cba1c3185632939daabc33e3d63e35b774484.gifv">
+</p>
 
 <p align="center">
 <img width="200" src="https://adriansblinkiecollection.neocities.org/z48.gif"> 
     <img width="200" src="https://adriansblinkiecollection.neocities.org/g95.gif"> 
     <img width="200" src="https://adriansblinkiecollection.neocities.org/c39.gif">
+</p>
+
+<p align="center">
+<img width="200" src="https://64.media.tumblr.com/ab745d978c26615fac2f1903c12f9de2/bea80a03eca020e8-33/s250x400/747f0753175505a55c14c32087a5a33759ab13a8.gifv"> 
+    <img width="200" src="https://64.media.tumblr.com/49250827bf9c49c02dd5200a15fb5853/b9cad5a3b0a11ffa-50/s500x750/b59790913fbf04b60e976df1ec9246e677ff8cf0.gifv"> 
+    <img width="200" src="https://adriansblinkiecollection.neocities.org/q22.gif">
 </p>
