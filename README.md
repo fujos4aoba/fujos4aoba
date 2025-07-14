@@ -1,62 +1,29 @@
 <p align="center">
+<img width="200" src="https://external-media.spacehey.net/media/sWEcgsdkK0QsAB5KObeBrS3PjxkHi992ZyoweCMuJnQI=/https://64.media.tumblr.com/3a78afd5661efce83e7f686c056beb6e/edf8b1846cb1b110-b6/s100x200/9aca84a2faaf4aa07d969bdfe272d949c6ef3bbb.gifv"> <img width="200" src="https://external-media.spacehey.net/media/sv7CPo5wqKV1QIMy-OfF2JGrakYiRieEq4kjlbPyLEHA=/https://64.media.tumblr.com/d5d05390c8a568eca0f097753df48a9b/edf8b1846cb1b110-91/s100x200/4ff82bd7e914ccbd94ac3c20b643459bc2205695.gifv"> <img width="200" src="https://external-media.spacehey.net/media/seiU9Sssb4WGKic4eahyvcZcn_Y4evBGA1GPRIn0B16c=/https://64.media.tumblr.com/008d96607be5825632cbec8ccf604f9c/edf8b1846cb1b110-e0/s100x200/f451f747bae70fd59710d9d80b2f68ce20391d4e.gifv">
+</p>
+
+<p align="center">
 <img width="200" src="https://64.media.tumblr.com/5da7cb9c945f07850b4bf6c7bf97d8be/f4ef729f756e4c4b-cc/s100x200/6a733556c1ce700785b07f56bf0de34ebce1db4f.gifv"> 
-    <img width="200" src="https://64.media.tumblr.com/80358c7fe78e6bc234c93b5ff58bcd00/b9cad5a3b0a11ffa-cb/s100x200/d7510a547118a5eb1cb37531cb688b70b4d1f56f.png"> 
-    <img width="200" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/205955e2-19bf-45e9-ae28-18acbfc9250a/dg7eri3-b6c40db4-2b5b-407d-8201-7a6c5fab029b.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzIwNTk1NWUyLTE5YmYtNDVlOS1hZTI4LTE4YWNiZmM5MjUwYVwvZGc3ZXJpMy1iNmM0MGRiNC0yYjViLTQwN2QtODIwMS03YTZjNWZhYjAyOWIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.no78Rbc4osBVIuBSwXwCW6Wiyd8z_Oxu8J_sANJKi28">
+    <img width="200" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/af4e0dc9-b8e4-4959-b601-a8625e662932/d7zeig4-ec9cf599-951b-4634-aafb-07a9d7d84aa7.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FmNGUwZGM5LWI4ZTQtNDk1OS1iNjAxLWE4NjI1ZTY2MjkzMlwvZDd6ZWlnNC1lYzljZjU5OS05NTFiLTQ2MzQtYWFmYi0wN2E5ZDdkODRhYTcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.E1wGNhUVq0raqHMVKnlzh3gOTGKZX-97e1lg8BGHwgI"> 
+    <img width="200" src="https://external-media.spacehey.net/media/sMmnEG_8Wx0yiBcV66dIckie5RCfc0hQ95u0r7CMPu2w=/https://64.media.tumblr.com/9366953a02a46c4866f17a0ac31a72ce/89749997f66a3a49-25/s100x200/ad3e81163aae2a683fac3e7b86a0ff572052445e.gifv">
 </p>
 
 <p align="center">
 <img width="200" src="https://adriansblinkiecollection.neocities.org/stamps/k9.gif"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/stamps/e90.gif"> 
+    <img width="200" src="https://64.media.tumblr.com/e3887b8db6813f80711105fea66e6343/tumblr_pbjltkxm4A1xz2nuuo7_100.png"> 
     <img width="200" src="https://adriansblinkiecollection.neocities.org/stamps/k44.png">
 </p>
 
 <p align="center">
     <img width="200" src="https://adriansblinkiecollection.neocities.org/stamps/k18.gif">
-<img width="200" src="https://64.media.tumblr.com/60d5e978837fa62b5fca710593a58b09/3671a26edef10d5d-17/s100x200/f99ccd922622663c595aa509e19d2a6485b03f3b.gifv">
-<img width="200" src="https://64.media.tumblr.com/24dfdb46187161691d44e7819e740221/3671a26edef10d5d-bc/s100x200/2e00a49b106c65faa48361518ef6c03047ddc1ef.webp">
+<img width="200" src="http://orig04.deviantart.net/a3c2/f/2014/063/6/b/madokamagicastamp_by_meepnyan-d78xk67.gif">
+<img width="200" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f181cda0-75fb-463a-8a66-0ae1a4de10c2/dhl3xbu-a6513bdb-5fc9-42d6-bd3f-fe68106aee04.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2YxODFjZGEwLTc1ZmItNDYzYS04YTY2LTBhZTFhNGRlMTBjMlwvZGhsM3hidS1hNjUxM2JkYi01ZmM5LTQyZDYtYmQzZi1mZTY4MTA2YWVlMDQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.RkcXP61QW3KfiYjfiDqQPG9qEnU4P4Wf5PF6vQBTGpg">
 </p>
 
 <p align="center">
-<img width="200" src="https://external-media.spacehey.net/media/sBCQkPNX-O4TYsjMrpYW_RQo_CufJ_Lp9kc2z1NoUzgU=/https://i.ibb.co/S72DC5d/ezgif-3-2967bb8416.gif"> <img width="200" src="https://img1.picmix.com/output/stamp/normal/0/4/8/7/2577840_36057.gif"> <img width="200" src="http://dl.glitter-graphics.net/pub/281/281111qnywm02nk3.gif">
+<img width="200" src="http://orig10.deviantart.net/dc16/f/2016/224/2/2/doukyuusei_stamp_2_by_o0_kanra_0o-dadkzrj.png"> <img width="200" src="https://external-media.spacehey.net/media/sspU_xxPz2ZuXeK0V3TWrcOMsuq5jHeD97_-0Mk0o0Zw=/https://64.media.tumblr.com/3f4770c535d61d6eae5cd5566b74c7e0/89749997f66a3a49-c3/s100x200/9dbd2fa8d19bf54401e841d4dd190907223cd574.gifv"> <img width="200" src="https://64.media.tumblr.com/1bd8cd20a1136651408e61bbe22da37f/2fb5bb3321a3e2f1-28/s100x200/859284c179723ddaa504402567d59ef5bf262647.gifv">
 </p>
 
 <p align="center">
-<img width="200" src="https://blinkies.cafe/b/display/0076-demigirl.gif"> <img width="200"src="https://blinkies.cafe/b/display/0021-vampirefangs.gif"> <img width="200" src="https://external-media.spacehey.net/media/spvOxyA7WuV__NPlDk2JIJEQWH802UDBDwxXuozJN4OU=/https://64.media.tumblr.com/24997d55ab96db514b599b96785013c8/c49b32468e352e20-bd/s250x400/eddc9b1bf667d5fb8790d84aec4e3243aad1e818.gifv"> 
-
-</p>
-
-<p align="center">
-<img width="200" src="https://64.media.tumblr.com/ab745d978c26615fac2f1903c12f9de2/bea80a03eca020e8-33/s250x400/747f0753175505a55c14c32087a5a33759ab13a8.gifv"> 
-    <img width="200" src="https://64.media.tumblr.com/49250827bf9c49c02dd5200a15fb5853/b9cad5a3b0a11ffa-50/s500x750/b59790913fbf04b60e976df1ec9246e677ff8cf0.gifv"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/q22.gif">
-</p>
-
-<p align="center">
-<img width="200" src="https://external-media.spacehey.net/media/sktScMJ4sOOljeSHCUlq0q_TnuSiQyuQqo2YRT_tE5Rg=/https://64.media.tumblr.com/03ece53af9203135a01d21e3dadc61d4/9aae553337836373-5b/s400x600/284abd628a4b344363bf31e9c25e51b36d3bb88a.gifv"> <img width="200" src="https://64.media.tumblr.com/6d12a2374206fe6e8fde0798e3e32894/0b1ab1662ed45859-35/s250x400/fa1336eb32c68fcd6956f3fac56bdca20b00d197.gifv"> <img width="200" src="https://64.media.tumblr.com/d0e84b6c1a9cf805dc7e4fa6bb6d91fb/0b1ab1662ed45859-fd/s250x400/2e6d568e0447d76565506da5341eb43281d56f5d.gifv"> 
-</p>
-
-<p align="center">
-<img width="200" src="https://adriansblinkiecollection.neocities.org/e24.gif"> <img width="200" src="https://external-media.spacehey.net/media/st4YbPYnsftsUZkQpr1VGjRetqUVWlSRHWEYmb2lSFfI=/https://64.media.tumblr.com/e133120785818729d98d2834e076b1cb/3852a99dc8db3a7b-fa/s250x400/caa994d0310567de7e82547b1715634eee9e69f0.gifv"> <img width="200" src="https://external-media.spacehey.net/media/sJi7tTt8Ir91iMpx4Bun8oLaZZ9vINiLVyulJijh3_iI=/https://64.media.tumblr.com/5b3630eafe12a769ebef51f66ee633e6/cb1fcca65f7e14bb-62/s250x400/77d60bd4848dc370067d03a4b85e0004de3d2881.gifv"> 
-</p>
-
-<p align="center">
-<img width="200" src="https://adriansblinkiecollection.neocities.org/v26.gif"> 
-    <img width="200" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/111c99cf-3a91-4330-9fca-e0536fea4a2f/djttuhg-4aa16658-41c9-45b6-9f69-f53c4de6ce39.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzExMWM5OWNmLTNhOTEtNDMzMC05ZmNhLWUwNTM2ZmVhNGEyZlwvZGp0dHVoZy00YWExNjY1OC00MWM5LTQ1YjYtOWY2OS1mNTNjNGRlNmNlMzkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.R3qkc3FYlXCZ5JKNFQYmjgOOGrZMzRLyOvaXjj7MAfI"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/g77.gif">
-</p>
-
-<p align="center">
-<img width="200" src="https://adriansblinkiecollection.neocities.org/x37.gif"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/y42.gif"> 
-    <img width="200" src="https://64.media.tumblr.com/d6f56795f126aa0576cf28c9b78021e4/648b5dc83e2eccd8-8c/s250x400/ec1cba1c3185632939daabc33e3d63e35b774484.gifv">
-</p>
-
-<p align="center">
-<img width="200" src="https://adriansblinkiecollection.neocities.org/z48.gif"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/g95.gif"> 
-    <img width="200" src="https://adriansblinkiecollection.neocities.org/c39.gif">
-</p>
-
-<p align="center">
-<img width="600" src="https://64.media.tumblr.com/16112535c6031e7cc20a341d7922f166/4789d800edd72b9c-40/s540x810/0c2d986f1e839ac13a77b599b2abc3cc84ba1612.gifv"> 
+<img width="600" src="https://media.tenor.com/_FQzT0wHUf4AAAAM/alnst-alien.gif"> 
 </p>
