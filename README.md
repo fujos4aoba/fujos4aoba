@@ -23,7 +23,3 @@
 <p align="center">
 <img width="200" src="http://orig10.deviantart.net/dc16/f/2016/224/2/2/doukyuusei_stamp_2_by_o0_kanra_0o-dadkzrj.png"> <img width="200" src="https://external-media.spacehey.net/media/sspU_xxPz2ZuXeK0V3TWrcOMsuq5jHeD97_-0Mk0o0Zw=/https://64.media.tumblr.com/3f4770c535d61d6eae5cd5566b74c7e0/89749997f66a3a49-c3/s100x200/9dbd2fa8d19bf54401e841d4dd190907223cd574.gifv"> <img width="200" src="https://64.media.tumblr.com/1bd8cd20a1136651408e61bbe22da37f/2fb5bb3321a3e2f1-28/s100x200/859284c179723ddaa504402567d59ef5bf262647.gifv">
 </p>
-
-<p align="center">
-<img width="600" src="https://media1.tenor.com/m/WdXgZNX0yGQAAAAd/alien-stage-ivan.gif">
-</p>
