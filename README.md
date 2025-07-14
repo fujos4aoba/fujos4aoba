@@ -25,5 +25,5 @@
 </p>
 
 <p align="center">
-<img width="600" src="https://media.tenor.com/_FQzT0wHUf4AAAAM/alnst-alien.gif"> 
+<img width="600" src="https://media1.tenor.com/m/WdXgZNX0yGQAAAAd/alien-stage-ivan.gif">
 </p>
